@@ -1,1 +1,1 @@
-# Book-and-Newspaper-Discussion-I-
+# Book-and-Paper-Discussion-I-
